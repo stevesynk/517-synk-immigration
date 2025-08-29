@@ -16,6 +16,11 @@ Immigration Policy and Discourse in USA
 
 #### Remodeling of Immigration and Deportation Policy
 
+Kilmar Abrego Garcia
+
+![Alt text here](images/kilmar-abrego-garcia.webp)
+
 #### Student Visa Revocations
 
 #### Who benefits
+

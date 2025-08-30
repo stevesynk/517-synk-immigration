@@ -5,7 +5,7 @@ Immigration Policy and Discourse in USA
 
 ## Immigration - Political and Media Discourse
 
-One of the main areas that I have been researching in my papers for my graduate course work is the idea of belonging/othering and why Latin American US Citizens and Residents are portrayed as a threat via racist and stereotyped political- and media- discourse. It is a very interesting, but also extremely unfortunate issue that has come to the forefront of US politics since Donald Trump started running for president in 2015/2016, and it is currently wreaking havoc on many families in the United States. However, it is not really a new issue, but rather something that has building over the past century and has ramped up over the past 30 or so years.
+One of the main areas that I have been researching in my papers for my graduate course work is the idea of belonging/othering and why Latin American US Citizens and Residents are portrayed as a threat via racist and stereotyped political- and media- discourse. It is a very interesting, but also extremely unfortunate issue that has come to the forefront of US politics since Donald Trump started running for president in 2015/2016, and it is currently wreaking havoc on many families in the United States. However, it is not really a new issue, but rather something that has been building over the past century and has ramped up over the past 30 or so years.
 
 ### Background
 There are 3 main phenomena that researchers believe set the stage for Donald Trump to be elected U.S. president, in part by campaigning on racist rhetoric where he, for example, blanketly accused Mexican people of being rapists and drug dealers:
